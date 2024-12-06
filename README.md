@@ -1,6 +1,3 @@
-<!--
-**littlearlphantomhivedoll/littlearlphantomhivedoll** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
 ### -*welcome to  ciel's manor-*  
 <div align="center">
 <img src="https://i.pinimg.com/originals/00/2a/1d/002a1d8dd78f218df8530ee1b1f6abcd.gif" align="center" style="width: 100%" />
@@ -69,3 +66,4 @@
 
 ----
 <div align="center">Generated using <a href="https://profilinator.rishav.dev/" target="_blank">Github Profilinator</a></div>
+**littlearlphantomhivedoll/littlearlphantomhivedoll** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.### -*welcome to  ciel's manor-* 
