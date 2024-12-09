@@ -35,7 +35,7 @@
 
 
 
-chuuya x dazai
+**chuuya x dazai**
 
 **sebastian x ciel**
 
