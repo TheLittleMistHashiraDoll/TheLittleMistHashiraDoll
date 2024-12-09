@@ -33,6 +33,10 @@
 
 **R!ciel x O!ciel (twincest)**
 
+
+
+chuuya x dazai
+
 **sebastian x ciel**
 
 **noe x vanitas**
