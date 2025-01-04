@@ -1,6 +1,6 @@
 ### -*welcome to  muichiro's estate-*  
 <div align="center">
-<img src="https://tenor.com/en-GB/view/muichiro-gif-6745317537848123490" align="center" style="width: 100%" />
+<img src="https://i.pinimg.com/736x/f3/62/97/f362972c66691396db3a7d59f03984ba.jpg" align="center" style="width: 100%" />
 </div>  
   
 
