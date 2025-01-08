@@ -72,7 +72,9 @@
 
 
 **sam (another anti)**  
-  
+
+
+**lolisho's** (**literally dont talk to me**)  
 
 - **🎀 make sure to color my tree btw i'd love to see what u guys have to say (apart from antis i will block you if ur an anti)**  
 
