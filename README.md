@@ -39,7 +39,7 @@
 
 **chuuya x dazai**
 
-**sebastian x ciel**
+**muzan x kokushibo**
 
 **noe x vanitas**
 
